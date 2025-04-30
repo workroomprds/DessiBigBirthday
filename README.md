@@ -1,12 +1,12 @@
 # Dessi's Big Birthday 10 May
 
-Dessi's birthday is on Friday 9th. I'm orgaising a surprise lunchtime gathering opposite the Albert Hall in Kensington Gardens on Saturday 10th.
+Dessi's birthday is on Friday 9th. I'm organising a surprise lunchtime gathering opposite the Albert Hall in Kensington Gardens on Saturday 10th.
 
 I'm also organising a bus to drive round various bits of London that are important to Dessi. The bus seats 60, and will be mostly choir.
 
 We're doing this on the 10th because it's a Saturday, and the choir has a gig on Friday 9th. 
 
-I'm Dessi's husband James, I'm on **07904158752**, call me or text me if you need me.
+I'm Dessi's husband James, I'm on **07904158752**, call me or text me if you need me. If I need to change things at the last minute, I'll put changes here – so bookmark this page so you have it with you.
 
 
 ## Picnic 12 noon Albert Memorial
@@ -16,7 +16,7 @@ Opposite the Albert Hall, near the Albert Memorial, noon onwards.
 Bad weather: I don’t yet have a plan.
 
 
-_If you want to meet the bus, it should arrive before 12 noon near the Albert Hall._
+_If you want to meet Dessi as the bus arrives, it should arrive before 12 noon near the Albert Hall._
 
 ### For picnicers to do 
 
@@ -26,7 +26,6 @@ _If you want to meet the bus, it should arrive before 12 noon near the Albert Ha
 * do bring food and drink and picnic mats to eat and share.
 * don't bring _all_ the food.
 * do bring friends. Please do check in with London friends of Dessi, in case I've missed them.
-
 
 ---
 
@@ -51,32 +50,39 @@ This is the definitive list of bus people – I'll update it as I go. It's got c
 
 * 4	4	Dessi, James, K&Y
 * 6	2	Rada and Sofia
-* 8	2	Alenka and small
-* 9	1	Kasia
-* 10	1	Ulrike
-* 11	1	Polly
-* 14	3	Moni & Ivor & Finn
-* 15	1	Nina M
-* 16	1	Alison
-* 17	1	Alex
-* 18	1	Ron
-* 19	1	Annie
-* 21	2	Lucy & Geoff
-* 22	1	Cate
-* 23	1	Zeebar
-* 24  1 Eleanor
-* 25  1 Deanna
-* 26  1 Valya
+* 7	1	Alenka
+* 8	1	Kasia
+* 9	1	Ulrike
+* 10	1	Polly
+* 13	3	Moni & Ivor & Finn
+* 14	1	Nina M
+* 15	1	Alison
+* 16	1	Alex
+* 17	1	Ron
+* 18	1	Annie
+* 20	2	Lucy & Geoff
+* 21	1	Cate
+* 22	1	Zeebar
+* 23	1	Eleanor
+* 24	1	Deanna
+* 25	1	Valya
+* 26	1	Lora
+* 27	1	Diana
+* 28	1	Veronica
+* 29	1	Jordan
+* 30	1	Ginka
+* 31	1	Bernard
+* 33	2	Iris & Anwen
 
 The bus takes up to 60 people. I want as many singers as we can, and some kids. It’ll be hard to move around if it’s full. There’s space for some partners, but probably not all partners. 
 
 ### More about the bus
 
-90 minute trip, taking in many spots important to Dessi. Probably East along the South Bank, then crossing over the Thames and returning West to the park. 
+90 minute trip, taking in many spots important to Dessi. I hope that we will go East (past the RFH, NT, Southwark Cathedral), North into the City (past St Ethelburga's), then head West (the Barbican tunnel, Farringdon, Chancery Lane). Then Westminster, Sloane Square, the V&A, RCM, the Embassy and the park.
 
 No booze on the bus. No loos, either. I don’t know whether we’ll be able to pick up or drop off when we’re on the move.
 
-I hope that we will go West (past the RFH, NT, Southwark Cathedral), North into the City (past St Ethelburga's), then head West (the Barbican tunnel, Farringodn, Chancery Lane). Then Westminster, Sloane Square, the V&A, RCM, the Embassy and the park.
+
 
 
 ### For busriders to do 
