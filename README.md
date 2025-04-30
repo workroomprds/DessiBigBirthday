@@ -64,13 +64,11 @@ This is the definitive list of bus people – I'll update it as I go. It's got c
 * 22	2	Lucy & Geoff
 * 23	1	Cate
 * 24	1	Zeebar
-* 25	1	Ulrike
-* 26  1 Eleanor
-* 27  1 Deanna
-* 28  1 Valya
+* 25  1 Eleanor
+* 26  1 Deanna
+* 27  1 Valya
 
 The bus takes up to 60 people. I want as many singers as we can, and some kids. It’ll be hard to move around if it’s full. There’s space for some partners, but probably not all partners. 
-
 
 ### More about the bus
 
