@@ -75,7 +75,9 @@ This is the definitive list of bus people – I'll update it as I go. It's got c
 * 33	2	Iris & Anwen
 * 34	1	Gwendolyn
 * 35	1	Margaret
-* 36    1   Claire (maybe)
+* 36	1   Claire (maybe)
+* 37	1 Steve
+* 38	1 David
 
 The bus takes up to 60 people. I want as many singers as we can, and some kids. It’ll be hard to move around if it’s full. There’s space for some partners, but probably not all partners. 
 
