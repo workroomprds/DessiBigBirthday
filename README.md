@@ -6,7 +6,9 @@ I'm also organising a bus to drive round various bits of London that are importa
 
 We're doing this on the 10th because it's a Saturday, and the choir has a gig on Friday 9th. 
 
-I'm Dessi's husband James, I'm on **07904158752**, call me or text me if you need me. If I need to change things at the last minute, I'll put changes here – so bookmark this page so you have it with you.
+I'm Dessi's husband James, I'm on **07904158752**, call me or text me if you need me. If I need to change things at the last minute, I'll put changes here – so bookmark this page so you have it with you. 
+
+This page lives at at https://workroomprds.github.io/DessiBigBirthday/
 
 
 ## Picnic 12 noon Albert Memorial
@@ -89,6 +91,8 @@ This is the definitive list of bus people – I'll update it as I go. It's got c
 The bus takes up to 60 people. I want as many singers as we can, and some kids. It’ll be hard to move around if it’s full. There’s space for some partners, but probably not all partners. 
 
 ### More about the bus
+
+Here are some [pictures](https://wmbusphotos.com/NONWM/RMs/RML2713.html)
 
 90 minute trip, taking in many spots important to Dessi. I hope that we will go East (past the RFH, NT, Southwark Cathedral), North into the City (past St Ethelburga's), then head West (the Barbican tunnel, Farringdon, Chancery Lane). Then Westminster, Sloane Square, the V&A, RCM, the Embassy and the park.
 
