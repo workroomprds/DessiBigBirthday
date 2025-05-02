@@ -15,8 +15,11 @@ Opposite the Albert Hall, near the Albert Memorial, noon onwards.
 
 Bad weather: I don’t yet have a plan.
 
-
 _If you want to meet Dessi as the bus arrives, it should arrive before 12 noon near the Albert Hall._
+
+**++ UPDATE++ we're due to get in at 12 at the bus stop near the Bugarian Embassy on Prince Consort Road**
+
+Here, probably, is the [live bus location](https://pwp.pinpointers.com/?token=1319EE76C54740CCA5F1000020FB00001C7200000038DF706CA0CCB8)...
 
 ### For picnicers to do 
 
@@ -29,14 +32,17 @@ _If you want to meet Dessi as the bus arrives, it should arrive before 12 noon n
 
 ---
 
+## Bus – 10:30 Waterloo Road Stop F
 
-## Bus – 10:30 York Road, Near Waterloo
+**++UPDATE TO PICKUP SPOT++**
 
-Bus pickup Saturday 10:30 am from Waterloo, York Road 
-* not sure which side, yet.
+Bus pickup Saturday 10:30 am near Waterloo: [Waterloo Road Stop F](https://tfl.gov.uk/bus/stop/490000254F/waterloo-station-waterloo-road). That's on the station side of the road, near the Jubilee Line entrance, but a bit further on, under the big bridge.
+
 * I hope this will be a surprise to Dessi
 * please gather earlier so there’s a crowd to greet her (and so we can set off)
+* Driver is Eugene, Conductor is Michael
 * if you're late, I can't be sure that you'll be able to get on the bus – I can ask the driver where a pickup might be on the route, and I'll share that.
+* The bus apparently has a [live bus locator](https://pwp.pinpointers.com/?token=1319EE76C54740CCA5F1000020FB00001C7200000038DF706CA0CCB8)...
 
 Bus dropoff at 12 noon Hyde Park for a picnic.
 
@@ -88,7 +94,7 @@ The bus takes up to 60 people. I want as many singers as we can, and some kids. 
 
 No booze on the bus. No loos, either. I don’t know whether we’ll be able to pick up or drop off when we’re on the move.
 
-
+**The weather forcast is sunny, but the bus has no roof so will be windy. Dress to stay warm**
 
 
 ### For busriders to do 
