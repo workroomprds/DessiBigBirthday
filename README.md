@@ -36,7 +36,7 @@ Here, probably, is the [live bus location](https://pwp.pinpointers.com/?token=13
 
 ## Bus – 10:30 Waterloo Road Stop F
 
-**++UPDATE TO PICKUP SPOT++**
+**++UPDATE TO PICKUP AND DROPOFF SPOT++**
 
 Bus pickup Saturday 10:30 am near Waterloo: [Waterloo Road Stop F](https://tfl.gov.uk/bus/stop/490000254F/waterloo-station-waterloo-road). That's on the station side of the road, near the Jubilee Line entrance, but a bit further on, under the big bridge.
 
@@ -46,7 +46,7 @@ Bus pickup Saturday 10:30 am near Waterloo: [Waterloo Road Stop F](https://tfl.g
 * if you're late, I can't be sure that you'll be able to get on the bus – I can ask the driver where a pickup might be on the route, and I'll share that.
 * The bus apparently has a [live bus locator](https://pwp.pinpointers.com/?token=1319EE76C54740CCA5F1000020FB00001C7200000038DF706CA0CCB8)...
 
-Bus dropoff at 12 noon Hyde Park for a picnic.
+Bus dropoff at 12 noon at the bus stop next to the church by the Embassy. Then we wander up to the park for a picnic.
 
 Bad weather: singing downstairs (some shelter upstairs)
 
@@ -64,7 +64,7 @@ This is the definitive list of bus people – I'll update it as I go. It's got c
 * 10	1	Polly
 * 13	3	Moni & Ivor & Finn
 * 14	1	Nina M
-* 15	1	Alison
+* 15	1	Alison 
 * 16	1	Alex
 * 17	1	Ron
 * 18	1	Annie
@@ -87,6 +87,8 @@ This is the definitive list of bus people – I'll update it as I go. It's got c
 * 37	1	Steve
 * 38	1	David
 * 39	1	Cole
+* 40	1	Bea?
+* 43	3	Kamil, Elenka, Emil
 
 The bus takes up to 60 people. I want as many singers as we can, and some kids. It’ll be hard to move around if it’s full. There’s space for some partners, but probably not all partners. 
 
@@ -94,7 +96,7 @@ The bus takes up to 60 people. I want as many singers as we can, and some kids. 
 
 Here are some [pictures](https://wmbusphotos.com/NONWM/RMs/RML2713.html)
 
-90 minute trip, taking in many spots important to Dessi. I hope that we will go East (past the RFH, NT, Southwark Cathedral), North into the City (past St Ethelburga's), then head West (the Barbican tunnel, Farringdon, Chancery Lane). Then Westminster, Sloane Square, the V&A, RCM, the Embassy and the park.
+90 minute trip, taking in many spots important to Dessi. I hope that we will go East (past the RFH, NT, Southwark Cathedral), North into the City (past St Ethelburga's), then head West (the Barbican tunnel, Farringdon, Chancery Lane). Then Westminster, Sloane Square, ~~the V&A~~, RCM, the Embassy.
 
 No booze on the bus. No loos, either. I don’t know whether we’ll be able to pick up or drop off when we’re on the move.
 
