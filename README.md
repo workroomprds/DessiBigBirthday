@@ -89,6 +89,7 @@ This is the definitive list of bus people – I'll update it as I go. It's got c
 * 39	1	Cole
 * 40	1	Bea?
 * 43	3	Kamil, Elenka, Emil
+* 44	1	Emily
 
 The bus takes up to 60 people. I want as many singers as we can, and some kids. It’ll be hard to move around if it’s full. There’s space for some partners, but probably not all partners. 
 
