@@ -13,15 +13,11 @@ This page lives at at https://workroomprds.github.io/DessiBigBirthday/
 
 ## Picnic 12 noon Albert Memorial
 
-Opposite the Albert Hall, near the Albert Memorial, noon onwards.
-
-Bad weather: I don’t yet have a plan.
-
-_If you want to meet Dessi as the bus arrives, it should arrive before 12 noon near the Albert Hall._
-
-**++ UPDATE++ we're due to get in at 12 at the bus stop near the Bugarian Embassy on Prince Consort Road**
+_If you want to meet Dessi as the bus arrives, it should arrive before 12 noon **at the bus stop near the Bugarian Embassy on Prince Consort Road**_
 
 Here, probably, is the [live bus location](https://pwp.pinpointers.com/?token=1319EE76C54740CCA5F1000020FB00001C7200000038DF706CA0CCB8)...
+
+Picnic opposite the Albert Hall, near the Albert Memorial, noon-ish onwards.
 
 ### For picnicers to do 
 
@@ -91,6 +87,7 @@ This is the definitive list of bus people – I'll update it as I go. It's got c
 * 43	3	Kamil, Elenka, Emil
 * 44	1	Emily
 * 45	1	Jarek
+* 47	2	Paul + Karen
 
 The bus takes up to 60 people. I want as many singers as we can, and some kids. It’ll be hard to move around if it’s full. There’s space for some partners, but probably not all partners. 
 
